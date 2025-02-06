@@ -1,2 +1,2 @@
-CS student, ready for collaborations!
+CS & Economics student.
 
